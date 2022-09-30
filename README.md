@@ -1,6 +1,4 @@
 
-          Profile
-
 ### Olá, crazzy dmn !
 - ⭐ Programando basicamente quase 24 por dia.
 - ⭐ Me chamo Gabriel mais conhecido como crazzy dmn.
