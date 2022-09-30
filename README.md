@@ -2,7 +2,7 @@
 ### Olá, crazzy dmn !
 - ⭐ Programando basicamente quase 24 por dia.
 - ⭐ Me chamo Gabriel mais conhecido como crazzy dmn.
-- ⭐ Apredendo Typerscript.
+- ⭐ Aprendendo Typerscript.
 - ⭐ contato empresarial (pcpedro9000@gmail.com)
 - ⭐ ele/dele.
 
